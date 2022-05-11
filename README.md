@@ -16,4 +16,4 @@
  
  <br>
  
-  ### Me acompanhem nessa jornada que inicio agora!
+  ### Estou apenas começando nesta area...Este é mais um reinicio em minha vida! Me acompanhem nessa jornada! Será muito bom tê-los como companheiros!
